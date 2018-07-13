@@ -1,3 +1,3 @@
-## Welcome to ZINOST Inc.
 
 사이트 준비중입니다.
+곧 만나 뵙겠습니다.
